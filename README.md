@@ -1,2 +1,0 @@
-# bewar-sosyal
-sosyal medya
